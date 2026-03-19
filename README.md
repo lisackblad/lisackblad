@@ -1,10 +1,10 @@
 <div align="center">
  
-  ![](https://64.media.tumblr.com/9054ab402d1ab5a3510101ddbe7cff11/5c946af0eadf9488-7a/s1280x1920/199a410571882cd5f9ddf641629af51fb8f2e026.pnj) 
+  ![](https://64.media.tumblr.com/8339895f7d1662b8159b6c4f207e859c/ba7823c252f0d5d1-92/s1280x1920/27ace5ba308a2e3efa011c176b5f6a48f63d5cea.pnj ) 
   
  
 
  
-[<b>Daily clicks!!</b>](https://arab.org)<br>
+[<b>Daily clicks</b>](https://arab.org)<br>
 
 
